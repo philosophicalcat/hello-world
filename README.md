@@ -1,1 +1,2 @@
 # hello-world
+I am a PhD candidate preparing for a final Viva. My research area is Applied Linguistics, and my specialty is using the L1 to assist learning an L2 in EFL classes, with special reference to EFL classes in Japan. My research uses explanatory sequential mixed methods, i.e. the quantitative phase is predominant and is followed by and explained by a qualitative phase. In addition, I interpret the results using multiple theoretical frameworks: psycholinguistics and multilinguistic frameworks support a wholistic interpretation of the results.
